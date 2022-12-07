@@ -1,1 +1,1 @@
-# rsschool-cv
+https://mvxxone.github.io/rsschool-cv/cv
